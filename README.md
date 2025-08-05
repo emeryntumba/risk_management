@@ -1,0 +1,1 @@
+mq5 risk management by auto postions closing
